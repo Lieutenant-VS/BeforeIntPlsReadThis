@@ -4,7 +4,6 @@
 
 ⊰ 𝑪𝒂𝒍𝒍 𝒎𝒆 𝑺𝒌𝒚𝒍𝒆𝒓/𝑮𝒐𝒅𝒇𝒂𝒕𝒉𝒆𝒓 ⊱
 
-【 𝚂𝚑𝚎/𝙷𝚎𝚛 𝚘𝚛 𝚂𝚑𝚎/𝚃𝚑𝚎𝚢  】
 
 # ![Image](https://github.com/user-attachments/assets/05950888-ac1d-4352-b8cb-3ec2e8a26328) ⊰ 𝚒𝚗𝚏𝚘𝚛𝚖𝚊𝚝𝚒𝚘𝚗 ⊱
 
